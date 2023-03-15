@@ -1,4 +1,4 @@
-# About Me
+# JTompkins415 - Software Engineer, Traveler, Lifetime Learner
 
 **John here!** 
 
